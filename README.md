@@ -1,2 +1,2 @@
-# EFT-po-toksycznym-zwiazku---Magdalena-Iskra
+# EFT-po-toksycznym-zwiazku-
 ebook terapi EFT
